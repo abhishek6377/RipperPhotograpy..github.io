@@ -1,1 +1,0 @@
-# RipperPhotograpy..github.io
